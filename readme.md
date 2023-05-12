@@ -1,0 +1,1 @@
+Netology homework. Task 9.2
